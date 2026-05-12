@@ -1,4 +1,4 @@
-#  
+#  hidden anime vanguards Script is the best anime vanguards Script, featuring aimbot and anti-ban. Safe and powerful for all your needs.
 
 
 
